@@ -1,1 +1,1 @@
-https://websalehosting.com
+websalehosting.com
